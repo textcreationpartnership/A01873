@@ -35,32 +35,38 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A true declaration of the happy conuersion, contrition, and Christian preparation of Francis Robinso
+
+1. TO THE RIGHT HOnorable Sir Henry Mountague, Lord Chiefe Iustice of England, grace and Honour bee multiplyed here, and by the mercies of Iesus Christ, fruition of his glory, and euerlasting Happinesse hereafter.
+
+1. To the Christian Reader.
+
 #####Body#####
 
-1. Now to confirme you how this Gentleman, as he himselfe related to me, fell, obserue what followeth.
+1. A true Declaration of the happy conuertion, contrition and godly preparition, of Francis Robinson Gentleman.
 
-1. A relation how we spent Wednesday Euening, being the eleuenth of Nouember.
+    _ Now to confirme you how this Gentleman, as he himselfe related to me, fell, obserue what followeth.
 
-1. Our conference.
+    _ A relation how we spent Wednesday Euening, being the eleuenth of Nouember.
 
-1. His Progression.
+    _ Our conference.
 
-1. His great desire of giuing satisfaction so farre as he could, to those whom he had greatly offended.
+    _ His Progression.
 
-1. The prayers wherein he was exercised day and night.
+    _ His great desire of giuing satisfaction so farre as he could, to those whom he had greatly offended.
 
-1. Certaine deuout inward comforts by him continually vttered and vsed.
+    _ The prayers wherein he was exercised day and night.
 
-1. A Prayer wherein hee was exercised.
+    _ Certaine deuout inward comforts by him continually vttered and vsed.
 
-1. This Prayer he saide at the time of his Death.
+    _ A Prayer wherein hee was exercised.
 
-1. The portions of Scriptures whereon hee continually meditated, after these Prayers were ended.
+    _ This Prayer he saide at the time of his Death.
 
-1. His owne relation of the beginning and proceeding in his foule fact, spoken the same morning a little before he went to his execution.
+    _ The portions of Scriptures whereon hee continually meditated, after these Prayers were ended.
 
-1. The conclusion.
+    _ His owne relation of the beginning and proceeding in his foule fact, spoken the same morning a little before he went to his execution.
+
+    _ The conclusion.
 
 **Types of content**
 
